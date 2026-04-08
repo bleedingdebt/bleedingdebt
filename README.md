@@ -44,8 +44,8 @@
       $\color{#7D8E9B}{\textsf{please ask when u wnna friend req me}}$ <br>
       $\color{#00000}{\textsf{　　 　♡𓏼　𓃉　im  decisive towards  new  people　﹒　}}$ <br>
       $\color{#7D8E9B}{\textsf{＞＜﹐ i would like to know about you more first!}}$ <br>
-      $\color{#00000}{\textsf{ ! my ugly gang slash jay}}$ <br>
-      $\color{#7D8E9B}{\textsf{　　 　﹒　shizle , kiesti , noli , parrotx2 , jean , izo  ﹕}}$ <br>
+      $\color{#00000}{\textsf{ ! im an artist and an animator }}$ <br>
+      $\color{#7D8E9B}{\textsf{　　 　﹒　my comms are open for supproter yes dm pastelcandypups if interested  ﹕}}$ <br>
 </th>
 </tr>
 </table>
