@@ -21,10 +21,10 @@
       $\color{#7D8E9B}{\textsf{　♡𓏼　𓃉　he/they/it ﹕}}$ <br>
       $\color{#00000}{\textsf{　　 🎱　﹒　06/01/20xx }}$ <br>
       $\color{#7D8E9B}{\textsf{pansexual , bigender }}$ <br>
-      $\color{#00000}{\textsf{＞＜﹐dnis}}$ <br>
-      $\color{#7D8E9B}{\textsf{i block freely , basic dnis}}$ <br>
-      $\color{#00000}{\textsf{　　 　﹒　tonetags needed please oke﹕}}$ <br>
-      $\color{#7D8E9B}{\textsf{ only when it comes to jokes n serious situation }}$ <br>
+      $\color{#00000}{\textsf{＞＜﹐loL}}$ <br>
+      $\color{#7D8E9B}{\textsf{no dni}}$ <br>
+      $\color{#00000}{\textsf{　　 　﹒　i dojnt need tonetags }}$ <br>
+      $\color{#7D8E9B}{\textsf{ send me threats idc }}$ <br>
 </th>
 </tr>
 </table>
@@ -45,7 +45,7 @@
       $\color{#00000}{\textsf{　　 　♡𓏼　𓃉　im  decisive towards  new  people　﹒　}}$ <br>
       $\color{#7D8E9B}{\textsf{＞＜﹐ i would like to know about you more first!}}$ <br>
       $\color{#00000}{\textsf{ ! im an artist and an animator }}$ <br>
-      $\color{#7D8E9B}{\textsf{　　 　﹒　my comms are open for supproter yes dm pastelcandypups if interested  ﹕}}$ <br>
+      $\color{#7D8E9B}{\textsf{　　 　﹒　if you know me no you dont ﹕}}$ <br>
 </th>
 </tr>
 </table>
