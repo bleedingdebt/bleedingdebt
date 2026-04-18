@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![img](https://i.imgur.com/s7uOmV0.png)
+![img](<img src="https://i.pinimg.com/736x/c5/b5/ec/c5b5ec71ab620e8ff7eeb9155e03ddd7.jpg" alt="Gambar Story PIN"/>)
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
