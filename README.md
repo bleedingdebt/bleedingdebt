@@ -10,4 +10,4 @@
 
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠
 
-dont  leave   me  like  this , sergiy
+:o(
